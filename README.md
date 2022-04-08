@@ -28,7 +28,7 @@ Katrina Robert's User Manual - My Communication Style
 ## What are your pet peeves?
 - loud, repetitive noises. 
 - toxic positivity
-- circus peanuts (they taste awful) 
+- [circus peanuts](https://www.eater.com/2015/10/24/9595684/what-are-circus-peanuts-penny-candy "What are circus peanuts? - Eater") (they taste awful) 
 
 ## What are your self-perceived biggest shortcomings?
 - I have no concept of time (I set a lot of reminders/timers & alarms) 
